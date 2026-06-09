@@ -4,11 +4,6 @@ privacy policy for TaksCrawler
 Settings
 Privacy Policy Preview
 
-add to website
-
-edit
-
-delete
 PRIVACY POLICY
 Last updated June 08, 2026
 
